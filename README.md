@@ -1,0 +1,2 @@
+# 3D-Sublimation
+3D sublimation vacuum heat press machines are heat presses used to print designs on to curved and irregular surfaces. This machine works by sucking out air to create vacuum pressure in the heated area where the blanks or substrates go. The vacuum pressure combines with heat to snugly wrap the sublimation transfer paper around the curved item. This makes it possible and easy to fuse the design all the way around three-dimensional materials in a single press run.
